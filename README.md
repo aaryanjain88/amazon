@@ -6,7 +6,5 @@ ifijfjfjgfjfjgjf
 mjfkjffjhfh
 fngfkgfjgfjgfjggit status
 
-gdfgfdgfgfgfgfg
-udujdududuydyuyddy
-jdhdhdhduhduhdh
+g
 hdhdhdhdh
